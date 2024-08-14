@@ -1,3 +1,4 @@
+I am GitJournal!
 Okay, so I write by explanation. How do I work with that?
 
 This isn\'t one story. This is the intersection of three/four stories.
