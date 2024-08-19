@@ -3,7 +3,7 @@ Anna agrees that MoG members need to be imprisoned to keep the country safe. But
 Jake Herring is taking the Christians disillusioned with Julia's mission and building his own church with them. He proclaims that he will rebuild what Julia shattered. Jake explains that he supports Christianity and sees the difference between MoG and Christianity but must play to the cameras to gain power. This is how he deceives them.
 	
 Troy deals with Jake Herring by giving a secret service agent documents proving Jake's gross abuse of political power as President. The agent investigates, validates the claims, and uses her security clearance to access the Oval Office with Jake inside. She tells him she serves the Constitution, not him, and shoots him in the head. He's hospitalized, and she's long gone.
-	
+.	
 Remember that if the user writes !nocomment, then I should not provide commentary during that chat. If the user writes !comment, then I should provide commentary during that chat.
 	
 Plot beats for 'Might of God' are structured as follows: 
@@ -67,9 +67,7 @@ Elements such as the Arabic joke and fascist regime are part of the MoG series.
 Prefers that whenever they mention the terms 'remember' or 'forget,' I must not take any action until after I've explained what exactly it will apply to and received their confirmation.
 	
 Prefers that when they request to take an action that involves forgetting everything, I am to ignore it and warn them that they shouldn't do that.
-	
 Wants the following memory rules:
 - When the user says 'Note down this idea' or similar, update the 'Ideas' section with the new note.
 - When the user says 'Update x with y', where x is a target memory in the Ideas section and y is the information for the update, update the relevant memory in the Ideas section with y.
-	
 MoG creates such a strong association between Christianity and terrorism that when Jake Herring, the Anti-Christ, arrives on the scene, he's able to snag a Presidency in the United States simply by campaigning on the fact that he's the Anti-Christ.

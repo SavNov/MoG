@@ -1,3 +1,17 @@
 # Anna Hawthorne
 ## Type:
-* ISFP
+* ISFP, Enneagram 1
+## Personality
+- Passionate about her convictions but otherwise reserved.
+- Introverted.
+- Rugged.
+- Athletic.
+- Cautious.
+- Skeptical.
+- Compassionate.
+## Traits
+- Gender: Female
+- Hair Color: Blonde
+- Hair Length: Shoulder
+- Eye Color: Green
+

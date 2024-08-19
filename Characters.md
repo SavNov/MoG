@@ -1,3 +1,11 @@
 # Main Characters
 * [Anna Hawthorne](Anna Hawthorne)
 * [Julia Hawthorne](Julia Hawthorne)
+* [Troy Lockwood](Troy Lockwood)
+* [Kai Rodriguez](Kai Rodriguez)
+* [Auri Anders](Auri Anders)
+* [Shelby Goodman](Shelby Goodman)
+* [Jake Herring](Jake Herring)
+* [Lucifer, Morningstar](Lucifer, Morningstar)
+* [Azazel](Azazel)
+* [Abbaddon](Abbaddon)
