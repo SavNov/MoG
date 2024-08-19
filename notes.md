@@ -1,4 +1,3 @@
-I am GitJournal!
 
 Okay, so I write by explanation. How do I work with that?
 
