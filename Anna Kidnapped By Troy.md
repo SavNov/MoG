@@ -2,15 +2,15 @@ Anna’s eyes open slowly, taking in the unfamiliar surroundings. Cold. Organize
 
 Her eyes scanned the room.
 *How did I even get here?*
-When she spots Troy leaning against a desk, her heart jumps. Relief flickers in her eyes, and she almost smiles.
-"Troy! Good God am I happy to see you!" She said, smiling as she stood up.
-She received radio silence. She took a step back.
-"Troy?" she called out, hesitant, confused as to why he wasn't answering her.
+When she spots Ray leaning against a desk, her heart jumps. Relief flickers in her eyes, and she almost smiles.
+"Ray! Good God, am I happy to see you!" She said, smiling as she stood up.
+He said nothing. She took a step back.
+"Ray?" she called out, hesitant, confused as to why he wasn't answering her.
 He still didn't respond.
 
-“Troy… what is this?” Her voice wavered slightly, but she forced herself to keep it light, as if she were still talking to the boy she remembers.
+“Ray… what is this?” Her voice wavered slightly, but she forced herself to keep it light, as if she were still talking to the boy she remembers.
 No response.
-"Troy... where am I?" She asked, now more direct.
+"Ray... where am I?" She asked, now more direct.
 
 For a long moment, he says nothing. When he finally speaks, there’s a chill to his tone she hasn’t heard before. Or, maybe it isn't chill, just...nothing. “You’re here because I needed you here.”
 And that was it. That was all he said.
@@ -25,22 +25,22 @@ He cut her off. “Exactly my point. That’s why you’re here.”
 
 Anna frowned, trying to process this new version of him. “This isn’t you,” she said, more to herself than to him. She took a breath, a mixture of fear and frustration in her eyes. “The boy I met—he wouldn’t do this. He was...”
 
-She stopped, realizing how naïve she sounds, and that she doesn’t really know him at all. Her first encounter with him had been just that, a first encounter. For all she knew, his first name wasn't even Troy. It could've been some kind of alias or nickname. Her next words come out almost involuntarily. “You don’t sound like the boy I met.”
+She stopped, realizing how naïve she sounds, and that she doesn’t really know him at all. Her first encounter with him had been just that, a first encounter. For all she knew, his first name wasn't even Ray. It could've been some kind of alias or nickname. Her next words come out almost involuntarily. “You don’t sound like the boy I met.”
 
-Troy's face remains impassive. "The boy you met was..." His features shifted as if deep in thought. "A persona. A role. An act. He wasn't real."
+The face of 'Ray' remains impassive. "The boy you met was..." His features shifted as if deep in thought. "A persona. A role. An act. He wasn't real."
 
 Her confusion deepened. “What do you mean by 'not real'?”
 
 He leaned forward slightly, his tone still clinical. This wasn't a conversation to him. This was a lecture, or maybe an argument. She was here to be convinced, to be explained to, to be taught. Not for a back and forth interaction. 
-“It means I don’t need to pretend with you anymore. I brought you here because I have an offer, not because I’m interested in appealing to the Troy you’ve built up in your head.”
+“It means I don’t need to pretend with you anymore. I brought you here because I have an offer, not because I’m interested in appealing to the version of me.”
 
 She looks at him, struggling to connect this cold, calculating person with the charismatic guy she met earlier. He'd been cracking jokes, laughing, smiling. He'd been...better than her at all of it. "So there's no real you, then? Just...masks?"
 
-For a moment, something in Troy’s eyes flickers with...something she can't define—Fear? Frustration? Dissappointment?—but he quickly regains his composure. “If you're going to do what we do, you need to get extremely familiar with them.”
+For a moment, something in Ray’s eyes flickers with...something she can't define—Fear? Frustration? Dissappointment?—but he quickly regains his composure. “If you're going to do what we do, you need to get extremely familiar with them.”
 
 Anna’s eyes narrow, her frustration boiling over. “Maybe there's nothing to you *besides* masks,” she retorts, throwing his own words back at him, trying to provoke a response, a hint of something genuine.
 
-Troy doesn’t miss a beat. “And yet I got the impression you spent your entire life up until now trying to be half of what I am. Trying to be your version of perfect.”
+Ray doesn’t miss a beat. “And yet I got the impression you spent your entire life up until now trying to be half of what I am. Trying to be your version of perfect.”
 
 The words hit her hard, but she holds her ground, refusing to let him see the impact. “That’s not—”
 
@@ -52,7 +52,7 @@ Anna swallows, feeling exposed under his gaze, but she doesn’t back down. “W
 
 She shakes her head, a mix of anger and confusion in her expression. “And you think that’s what you’re offering me? A chance to be more like you?”
 
-Troy’s smile is thin. “A chance to be less like me, and more like yourself.”
+Ray’s smile is thin. “A chance to be less like me, and more like yourself.”
 The way he said that told her that being less like him was a good thing in his eyes. But more like herself? 
 For someone like her, who'd spent her entire life trying to be someone else, someone her church needed, someone her mom needed, someone her friends needed, that offer was scary...but there was no way she could turn it down.
 
@@ -63,3 +63,10 @@ She knew she was being manipulated. She knew he was probably selling her a story
 But for the first time since she could remember, every fiber of her being was saying the exact same thing, like the world's largest choir harmony: *Yes. I want this.*
 "I'm in." She said. 
 And so, she was.
+
+"Just one more thing before we get started." 'Ray' said. "My name isn't Ray. It's Troy. Ray...is an alias."
+*Troy?*
+This boy had even lied about his own name, and he'd lied about it...convincingly.
+"You asked where you are? You're in my office. I'm what many would refer to as a kingpin." Troy said.
+**Wait. WHAT?**
+
