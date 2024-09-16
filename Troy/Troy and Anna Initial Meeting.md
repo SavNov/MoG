@@ -1,1 +1,0 @@
-/home/aidanw/neorg/MoG/Files/Troy and Anna Initial Meeting.md
