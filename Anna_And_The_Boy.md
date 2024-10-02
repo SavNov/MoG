@@ -15,31 +15,36 @@ Maybe that was why he was ignoring me now. At least, I hoped so.
 He didn’t answer, just shook his head, his fists curling tighter in his lap. I noticed a small silver cross around his neck, the chain glinting faintly in the fading light. It dangled there, like it was supposed to protect him from something bigger than himself.
 *Religious. Possibly Christian. Maybe he feels unsure of who to trust, just like me.*
 
+I felt it, even though it was years ago. The cross sitting against my neck, the way the metal pressed against me, affirming me. *You are safe. You are secure.* How, only months ago now, Jeremy had seen it as a ward of protection. The peace and the calm in his face had been unmistakable.
 “I used to have one of those,” I said, nodding toward the cross. “A long time ago.”
 
-His eyes flicked toward me, quick, cautious. He was watching me the way a cornered animal might watch a hunter. *Possibly not Christian then.* But then his gaze drifted to my hands. Something in him changed—he stiffened, like he was bracing for something bad.
+The boy's eyes flicked toward me, quick, cautious. He was watching me the way a cornered animal might watch a hunter. But then his gaze drifted to my hands. Something in him changed—he stiffened, like he was bracing for something bad. It would've been a strange reaction to Jeremy, but I knew better. Something like a cross meant something very different now than it had back then.
 
-I felt it, deep in my gut, the cold realization of what was happening. I didn’t need to see my reflection to know what he was reacting to. It wasn’t just me. It was what I represented now. I’d been seeing it more and more lately—people didn’t look at me the same way anymore. Even when I smiled or kept my hands relaxed, like I was harmless. They didn’t see that. They saw something else. A monster. A zealot. An extremist.
+I felt it, deep in my gut, the cold realization of what was happening. It wasn’t just me. It was what I represented now. I’d been seeing it more and more lately—people didn’t look at me the same way anymore. People didn't even look at people like me the same way anymore. Even when I smiled or kept my hands relaxed, like I was harmless. They didn’t see that. They saw something else. A monster. A zealot. An extremist.
 
-"A suspected terrorist by the name of-" A news reporter said below from what was no doubt a pile of TVs in the corner of an old electronics shop.
-A large truck drove down the road and completely blared out the name. But I knew.
+"A suspected terrorist by the-" A news reporter said below from what was no doubt a pile of TVs in the corner of an old electronics shop only to be blared into oblivion by a passing truck. But I didn't need to hear it to know what the reporter said.
 *A suspected terrorist by the name of Anna Hawthorne.*
 
 It was always the same story.
 “It’s okay,” I said, trying to soften my voice more, though I wasn’t sure it would help. “You don’t need to be afraid of me. I’m not gonna hurt anyone.”
 
-He didn’t say anything. His eyes stayed glued to my hands, and then to the cross hanging around his own neck. Then I saw the way he was holding it. He wasn't holding it because he was trying to pray to Jesus for strength or safety. He was holding it because it was familiar, like a teddy bear or something. The silence between us stretched, heavy, awkward, and I found myself reaching for something—anything—that might break it.
-*Not religious then. But his parents are.*
+He didn’t say anything. His eyes stayed glued to my hands, and then to the cross hanging around his own neck. He wanted to believe me, wanted to believe that I was safe. But he was too scared. He couldn't bring himself to trust me. Then I saw the way he was holding the cross. He wasn't holding it because he was trying to pray to Jesus for strength or safety. He was holding it because it was familiar, like a teddy bear or something. The silence between us stretched, heavy, awkward, and I found myself reaching for something—anything—that might break it.
+*His parents must be the religious ones then.*
 
-“I’m a Christian, like they are,” I said. I thought it would reassure him. It had to, right? It would be familiar, just like the cross was, a symbol of safety. It was a statement of peace, something people used to hear and relax.
+“I’m a Christian, like they are,” I said. I thought it would reassure him. It had to, right? It would be familiar, just like the cross was, a symbol of safety. It was a statement of peace, something people used to hear and relax. "For God so loved the world-"
 
-But his eyes shot up to mine, wide and full of panic. He looked at me like I’d said something terrible, something that turned the air cold between us. His lips parted, but no words came out. The fear in his eyes was so raw, so real, that I actually felt it in my chest, like I was the one under attack.
+He cut me off so quickly even my own mouth hung open.
+
+"No. Don't. Don't say stuff like that." He blurted.
+
+His eyes shot up to mine, wide and full of panic. He looked at me like I’d said something terrible, something that turned the air cold between us. His lips parted, but no other words came out. The fear in his eyes was so raw, so real, that I actually felt it in my chest, like I was the one under attack.
 The words went to my mind a tenth of a second after I spoke those aloud. 
 *Not are. Were.*
 
 I just stared at him, trying to process what I was seeing, what I was feeling. This boy—this kid—was afraid of me. Afraid because I told him I was a Christian. Afraid because of what people like my mother had turned that word into.
 
-It hit me so hard I couldn’t breathe for a second. I wasn’t just standing there as some random woman sitting on the steps of a building. No. In his eyes, I was Julia Hawthorne’s daughter. I was the face of everything people like her had turned faith into. Fear. Control. Violence. The fact that I hadn’t done those things myself didn’t matter anymore. The name was enough. The faith was enough. The 24/7 news cycle was enough. It didn't matter that all of it was fake. People were scared, too scared to believe anything else.
+Then it hit me. Properly hit me. The only reason someone would have this kind of reactino to hearing John 3:16 was if he'd had a traumatic experience with Christians.
+It hit me so hard I couldn’t breathe for a second. I wasn’t just standing there as some random woman sitting on the steps of a building. No. In his eyes, I was one of my mother's many zealot extremisms bent on killing, beating and silencing anyone seen as a threat to her vision for the world. I was the face of everything people like her had turned faith into. Fear. Control. Violence. The fact that I hadn’t done those things myself didn’t matter anymore. The name was enough. The faith was enough. The 24/7 news cycle was enough. It didn't matter that all of it was fake. People were scared, too scared to believe anything else.
 
 “I’m not like her,” I whispered, more to myself than to him. But the words didn’t come out right. They felt hollow. False.
 He'd never believe me.
