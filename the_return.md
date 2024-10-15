@@ -38,10 +38,10 @@ I thought back to the exact conversation with Troy.
 "He didn't even touch me. I'm okay." I said. 
 "He?" She paused for a brief moment. "I mean, I suspected it was a male, but the police didn't tell me anything."
 She shrugged.
-"You let me handle that...situation. Just rest." She reassured me, shining me that familiar smile.
+"You let me handle that…situation. Just rest." She reassured me, shining me that familiar smile.
 I wanted this. No, I *needed* this. 
 "What were you talking about with the leaders?" I asked.
 She blinked.
-"I was just talking with Ramsey about doing some more community outreach. You may be the...well, not the youth pastor, but...we'll work that out later. You may be the head honcho of God's Might Ministries, but there is a lot of red tape to be dealt with before we can get this thing up and running. Nothing you need to worry about. You just rest and prepare yourself." She said. 
+"I was just talking with Ramsey about doing some more community outreach. You may be the…well, not the youth pastor, but…we'll work that out later. You may be the head honcho of God's Might Ministries, but there is a lot of red tape to be dealt with before we can get this thing up and running. Nothing you need to worry about. You just rest and prepare yourself." She said. 
 I could hear the silent order in the subtext of her words, the thing every parent is thinking: *Do not embarrass me. I do not want to regret putting you in charge of this.*
-She wasn't even wrong. When I got placed in charge of things...they tended to go wrong.
+She wasn't even wrong. When I got placed in charge of things…they tended to go wrong.
