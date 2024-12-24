@@ -1,4 +1,4 @@
-Anna’s eyes open slowly, taking in the unfamiliar surroundings. Cold. Organized. Sheet white. Flat. She blinks, trying to clear the fog from her mind, and slowly realizes she's sitting in a cold wooden chair, untied but far from comfortable. The room is too quiet, too pragmatic—too far from anything she expected.
+My eyes opened slowly, taking in the unfamiliar surroundings. Cold. Organized. Sheet white. Flat. She blinks, trying to clear the fog from her mind, and slowly realizes she's sitting in a cold wooden chair, untied but far from comfortable. The room is too quiet, too pragmatic—too far from anything she expected.
 
 Her eyes scanned the room.
 *How did I even get here?*
